@@ -1,5 +1,5 @@
 ## Hi there 👋 :D
 
-I'm Maria and I'm currently a student, right now github is a free time activity mostly ^-^
+I'm Maria and I'm currently a student, for now github is just a free time activity ^-^
 
 I'm gonna try and make any project I can come up with!
